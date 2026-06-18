@@ -6,13 +6,12 @@ Anime streaming guides, manga recommendations, Smart TV tutorials, and APK insta
 
 https://tomateanimes.com
 
-## Popular Guides
+## Installation Guides
 
-Smart TV:
-https://tomateanimes.com/smart-tv/
+- [Tomato Animes for PC](https://tomateanimes.com/baixar-tomato-animes-apk-para-pc/)
+- [Tomato Animes for Smart TV](https://tomateanimes.com/baixar-tomato-animes-apk-para-smart-tv/)
+- [Tomato Animes for TV Box](https://tomateanimes.com/baixar-tomato-animes-para-tv-box/)
 
-PC:
-https://tomateanimes.com/pc/
+## Follow Us
 
-Pinterest:
-https://www.pinterest.com/infotomateanimes/
+- [Pinterest](https://www.pinterest.com/infotomateanimes/)
